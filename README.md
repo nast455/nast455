@@ -20,3 +20,4 @@ If you're seeking someone passionate about cryptocurrencies, experienced in vali
 
 Best regards,
  Nastia Yevsiukova
+📧 Email: nasti7klimt@gmail.com
